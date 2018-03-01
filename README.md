@@ -1,2 +1,2 @@
 # blgm_412
-hjbvbhıvbhı
+hebele hübele
